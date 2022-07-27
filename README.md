@@ -5,7 +5,7 @@
 
 - 🧋❤️ Nestea Lover.
 - 💀 27 years old.
-- 📁  i Decompile C# Games and programs for fun.
+- 📁  I Decompile C# Games and programs for fun.
 - 🐀  SSKID as fuck.
 - 🙄 i understand C , C++ and C# .
 
